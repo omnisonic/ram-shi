@@ -1,0 +1,17 @@
+Title: SANTA FE CHILDREN'S MUSEUM COOKBOOK
+Date: 2021-09-05T22:40:00-07:00
+Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiAFqiT3DiJkKuuObzTGlfnhVHomOvwsXnRuoi-LTtgD3aG5lrr9q2ZMzPapgloeJEz28NKqq26HSHGVsrBxs9ZtJu0Ph3CjnCai7pGQdNmcMeiSXNNqaUgGqEJLRMfOvQdyU_TxBHfKMaeCydHtA2f6djSvlCUFtXPjv6CJKqhltiZkQZ4Y3LOlfg/w320-h204/240604436_10159366203559705_5195404989938007980_n.jpg" width="700">
+
+Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2021/09/santa-fe-childrens-museum-cookbook.html
+Post ID: 8117348036847042400
+  
+
+
+  
+
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiAFqiT3DiJkKuuObzTGlfnhVHomOvwsXnRuoi-LTtgD3aG5lrr9q2ZMzPapgloeJEz28NKqq26HSHGVsrBxs9ZtJu0Ph3CjnCai7pGQdNmcMeiSXNNqaUgGqEJLRMfOvQdyU_TxBHfKMaeCydHtA2f6djSvlCUFtXPjv6CJKqhltiZkQZ4Y3LOlfg/w320-h204/240604436_10159366203559705_5195404989938007980_n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiAFqiT3DiJkKuuObzTGlfnhVHomOvwsXnRuoi-LTtgD3aG5lrr9q2ZMzPapgloeJEz28NKqq26HSHGVsrBxs9ZtJu0Ph3CjnCai7pGQdNmcMeiSXNNqaUgGqEJLRMfOvQdyU_TxBHfKMaeCydHtA2f6djSvlCUFtXPjv6CJKqhltiZkQZ4Y3LOlfg/s1440/240604436_10159366203559705_5195404989938007980_n.jpg)  
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEht3Nxq0j_pduai2P2Bxofba1WUO32h0ljqK1zwgVKGMqjszOi7INIPtIbqIT1x8D3-mvkI4RaK4vW1SM8JbE7jdhJlUChNgmvOXIeTgengGnlKqmI_IJBPJZ7dw4BiqfeNk7l3k7aE9cwcPFyQ2aJ4NGpmaI4NP4LQ0KLn4Di-E-RtjlCoAo_vmxk/s320/240928800_10159366203709705_2377777052457254500_n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEht3Nxq0j_pduai2P2Bxofba1WUO32h0ljqK1zwgVKGMqjszOi7INIPtIbqIT1x8D3-mvkI4RaK4vW1SM8JbE7jdhJlUChNgmvOXIeTgengGnlKqmI_IJBPJZ7dw4BiqfeNk7l3k7aE9cwcPFyQ2aJ4NGpmaI4NP4LQ0KLn4Di-E-RtjlCoAo_vmxk/s1440/240928800_10159366203709705_2377777052457254500_n.jpg)[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgfZaep44fHRnoOBPAj2K3xQXY8b02V5Qdgl6tvZfA4Ntr9eg6FT7_LwmO60MQ1IRT5RyNr_JrJP1B2-nlgyHOdcE6hTldjjDNGqg8pdQ4Q9RfpSnTlwJXARNATp91NKJLgwVhmPfl2h8AGC-NlDYO6JS_qvVs-UZ8_8mqFr7QPRDxfNuywKGrvAkk/s320/240959568_10159366203634705_2253284751032462109_n.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgfZaep44fHRnoOBPAj2K3xQXY8b02V5Qdgl6tvZfA4Ntr9eg6FT7_LwmO60MQ1IRT5RyNr_JrJP1B2-nlgyHOdcE6hTldjjDNGqg8pdQ4Q9RfpSnTlwJXARNATp91NKJLgwVhmPfl2h8AGC-NlDYO6JS_qvVs-UZ8_8mqFr7QPRDxfNuywKGrvAkk/s1440/240959568_10159366203634705_2253284751032462109_n.jpg)  
+  
+What an honor to contribute a recipe with other chefs and families for the “Santa Fe Children’s Museum Cookbook”. Not only is this 71 page cookbook rich with regional and historical facts, but many exciting programs being developed with the support from community volunteers, donors, and partners. Thank you Hannah Hausman for giving our youth access to science, art, humanities education, a safe space to have fun, explore and play. For more information about the Santa Fe Children’s Museum go to the link in my comment box below.Happy cooking and have a beautiful life everyone! ![🔥](https://static.xx.fbcdn.net/images/emoji.php/v9/t50/1/16/1f525.png)![🍙](https://static.xx.fbcdn.net/images/emoji.php/v9/taf/1/16/1f359.png)![🥘](https://static.xx.fbcdn.net/images/emoji.php/v9/tb4/1/16/1f958.png)![🥗](https://static.xx.fbcdn.net/images/emoji.php/v9/t33/1/16/1f957.png)![🌻](https://static.xx.fbcdn.net/images/emoji.php/v9/t1a/1/16/1f33b.png)![❤️](https://static.xx.fbcdn.net/images/emoji.php/v9/t6c/1/16/2764.png)

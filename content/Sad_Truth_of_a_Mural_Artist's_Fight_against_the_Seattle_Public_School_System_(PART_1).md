@@ -1,0 +1,310 @@
+Title: Sad Truth of a Mural Artist's Fight against the Seattle Public School System (PART 1)
+Date: 2013-04-13T13:44:00-07:00
+Summary: 
+
+Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2013/04/sad-truth-of-mural-artists-fight.html
+Post ID: 3391185060233992985
+**By Ramon Shiloh**  
+
+
+  
+
+
+**North Seattle, Washington\-**On April
+16\-18, 2013, the Wilson\-Pacific School held their Seattle Clear
+Sky 3rd annual Native Youth Conference. Keynote speakers,  storytellers, musicians, teachers and artists will offer three days of indigenous knowledge, education and culture in an effort to foster unconditional support for all children in
+need of guidance, direction and creative freedom. This year’s theme, “The Good
+Road of Life,” acknowledges the strengths and achievements of our city’s youth.
+
+  
+
+
+As the home of the American Indian Heritage Middle College High School, the event at the Wilson\-Pacific campus in North Seattle also serves as the
+perfect rally point to inform the community about Seattle Public Schools’
+decision to demolish the historic building. What is at stake is the loss of a
+40\-year\-old legacy of tribal continuity, athleticism, indigenous\-based higher
+learning and the destruction of works by Native American mural artist Andrew
+Morrison.
+
+  
+
+
+**Native
+Education has Little or No Support from Seattle School Board**
+
+
+
+Prior to the proposed $695 million dollar Capital
+Levy (Proposition 2\), which passed in February 2013, the Native American
+community has been calling for justice. While supposedly aiming to improve the
+educational future of our children, this Seattle Public Schools levy actually threatens
+Native American academic support services by cutting the Indian Heritage
+Program at Wilson\-Pacific. 
+
+  
+
+
+With just nine months in as Superintendent of
+Seattle Public Schools, Jose Banda has determined that making moderate
+structural improvements to the aging building is not a worthwhile investment. Additionally,
+the school board members argue that since there are fewer Native American
+children in attendance, the building should be demolished to make way for a newer
+facility that suits the demands of the 21st century. To Banda, the
+decision may appear to be a viable upgrade, but to North Seattle residents and community supporters it desecrates the values of Wilson\-Pacific and American Indian heritage. 
+
+  
+
+On July 3, 2012, newly appointed as Superintendent of Seattle Public Schools, Jose Banda found himself at his first board meeting at the Seattle Public
+Schools John Stanford Center. While there, he was confronted by parents and
+teachers, including the Seattle Clear Sky Native Youth Council, who were ready
+to speak their concerns about the Capitol Levy issue and the Indian Heritage program
+at Wilson\-Pacific. Banda addressed his first agenda item in the meeting: Demolition
+of the Wilson\-Pacific building and relocation of the students, teachers and
+staff to the Middle College High School at Northgate Mall, which resides above
+the Express Store (a transient center) near Macy’s.
+
+  
+
+
+According to the Seattle Public Schools website, "Banda, who has served as Anaheim City Schools
+Superintendent for the past four years, was chosen following a national search
+for a superintendent who exhibited the desired characteristics and traits
+defined by the community, including: a visionary, inspirational leader; an
+instructional leader who has a proven track record; a knowledgeable manager and
+an effective communicator.”
+
+  
+
+
+But many parents weren't pleased with Banda’s discourse.
+What really sat negatively with people was that he never met with any
+affiliates of Wilson\-Pacific nor did he visit the site for himself. “The fact
+that not one public school official approached me or called me or emailed me or
+consulted any other’s about this building to decide if demolishing should
+happen says everything about the mentality they’re in,” says local mural artist
+Andrew Morrison. “Jose Banda has never volunteered at the Indian Heritage
+Program, his children never grew up in Seattle Public Schools, he never knew
+Bob Eaglestaff and so, in no way shape or form, can any public official say
+that Jose Banda’s in harmony with our customs! That goes with a number of
+others who are in tandem with his beliefs.”
+
+  
+
+
+**Not
+Feeling Defeated**
+
+
+
+Chris Jackins, co\-chairof Seattle Committee to Save Schools, is a Ballard resident who
+has seen this scenario play out too many times. Jackins, who graduated from
+Ballard High School in the 1990's, remembers how he and a few fellow students
+found themselves on the frontlines to save their high school from being
+demolished after Seattle Public Schools passed a $6\.9 million levy to fix it
+up. In time, the district had cost overruns in other projects and the monies
+never made it back to facilitate improvements at Ballard High School. The
+school board claimed that it was too old and unsafe and needed to be taken
+down. 
+
+  
+
+
+Despite gathering more than 1,000 signatures, with
+constant appearances to school board meetings and an outpouring of community
+support, the school was torn down. “This tear\-down made a big impression on a
+lot of people,” Jackins said. “A woman I went to kindergarten with went to
+Ballard High and her grandmother was the first graduating class, walking the
+same stairs her grandmother had. When she was aware of this, she was saddened
+and said, ‘No, they’re not going to tear down the building!’ and of course, it
+happened.”
+
+  
+
+
+Jackins believes the school district should really
+invest in people where they’re at and go from there. "My objection isn't necessarily that you can’t run a school that’s large and make it work. My
+feeling is that when you open these huge schools, it’s very deliberate and a
+cheaper way to run the school by closing other nearby schools and moving them
+into that one,” Jackins says. “So when the district entertains the thought, they’re
+doing a wonderful thing for all people and going back to a neighborhood system.
+Well, they’re not. They've now displaced thousands who are unprepared to meet
+the demands of a different school philosophy, and in the end, they will
+radically change the performance of how children learn and how school teachers
+teach.”
+
+  
+
+
+When asked what big impacts would get in the way to
+stop a demolition from taking place, Jackins replied, “Money seems to be the
+driving force behind the Indian Heritage issue. But I don’t believe these awful
+things need to happen. They certainly have all the intentions to bulldoze it
+all. But until it happens … to be honest, the school district doesn't always
+win.”
+
+  
+
+
+  
+
+
+Sarah Sense\-Wilson, an Oglala Sioux who was born and
+raised in Seattle, started her journey at Indian Heritage in 1995\-96 as a
+basketball coach and has since filled up her time in other capacities at the
+school. Coordinator for the Clear Sky Youth Council, she was elected Chairwoman
+for the Urban Native Education Alliance (UNEA), an organization that empowers
+and bridges cultural and traditional knowledge with support services for urban
+Native youth. 
+
+  
+
+
+“All of us at Indian Heritage have been opposed to
+this scheduled demolition from the beginning. If you look at the dark hours of
+our country and the ongoing plight of our people, we recognize historically in
+being a marginalized population where this issue is a continued attack from our
+past. I see this as an act of cultural genocide,” says Wilson, speaking with
+both pride in her work and frustration about the issue at hand. “To not gather
+and help our future generations come up from our program will disrupt the cultural
+continuity of these children and our peoples.”
+
+  
+
+
+**Native
+Artist Fights to Save His Murals from Those Wanting to Erase His Name**
+
+  
+
+
+The demolition will also destroy the historic murals of
+local Native artist, Andrew Morrison (Haida/Apache). Murals are a significant
+part of many cultures around the globe, but their power is of particular
+importance to individuals whose ancestors experienced that visual statement.  Since 2001, Morrison's murals, which grace the American Indian Heritage Middle College High School/Wilson Pacific campus, have paid homage to communities past, present and future of the Pacific Northwest. Considered an important community resource, Morrison's murals highlight
+iconic figures, such as Chief Joseph and Chief Seattle, as well as depict important events that have affected the Native community in Seattle.
+
+  
+
+
+Morrison is a board member of Urban Native Education
+Alliance. His murals and a collection of artistic works have been featured at
+universities, powwows and festivals, ranging from Alaska to the Southwest. Morrison
+has acquired an abundance of awards and commissions during his 18\-year
+professional career, but more significantly, he has captured the hearts of his
+peers and elders, who in turn champion his work. 
+
+  
+
+
+“The reason I have lasted this long creatively is
+community support – the art community, and more in the Native community,”
+Morrison explains with gratitude. “The community says my murals touch their lives
+and make them feel at ease and calm. Some people look at my artwork and say when
+they wake up in the morning that it makes their day a little brighter.” 
+
+  
+
+
+When Morrison completed the Mural of Chief Seattle
+in 2002, King 5’s *Evening Magazine* featured
+an interest piece on his life and artistry. On the following day of the
+unveiling, one public official who elevated the spirits at Wilson\-Pacific was Mayor
+Greg Nickels. “That was the one time I ever met him and he was so
+inspired, respectful and very sincere about my work,” Morrison recalls. “It was
+great. He stuck around for an hour; he wasn't rushed and congratulated me. The mural in height was 25\-feet tall and
+Nickels spoke from a sincere place by saying, 'Thank you for doing the largest
+commemoration of our founding forefather and namesake.’ He stood there
+during the unveiling and spoke from the heart about Chief Seattle. It was the
+greatest day of my life.” 
+
+
+
+  
+
+
+Now, with Seattle Public Schools' scheduled demolition, Morrison is fighting to save his life's work, which has transformed the community of North Seattle into one of the most visited destinations in the Pacific Northwest. On February 25th, 2013, the cover of the Seattle Times featured Morrison poised in front of his mural of Chief Joseph with the blaring headline, "Beloved Native American Murals at Wilson\-Pacific May Disappear." 
+
+  
+
+
+Morrison takes issue with how Seattle Public Schools is working with him and the Wilson\-Pacific community to identify ways to preserve the murals if the school is replaced. It isn't uncommon for works of art to be taken down or rerouted for public display. In fact, with a healthy intention of community involvement, with the artists approval in tow, the transition can benefit many. What's disturbing Morrison is that he is now facing scrutiny from Seattle Public School officials of a unanimous decision to have all of his murals digitally reproduced and relocated without his consent. 
+
+  
+
+
+"The reason I've excluded myself from public officials who I thought had the best interests on this issue in the last six months is because they've blatantly lied to my face about the preservation of my murals," Morrison explains. "Where they're now going, is through an avenue of slander and defamation of character, and all of a sudden I look like a disgruntled artist. First of all, to digitally reproduce my work is a joke! And the February article everyone has read makes it seem like I'm eliminating myself from protecting my work, when they have bullied me out of protecting my work." 
+
+  
+
+
+In the end, North Seattle residents and those who
+are involved with the American Indian Heritage Middle College High School program at Wilson\-Pacific are bracing for radical changes
+in the months to come. “The hook, line and sinker of this story coming out and
+my voice being heard is that the district and Seattle Public Schools officials who
+have wrecked the fabric of our community underestimate me, my knowledge and my
+common sense and my subject matter,” Morrison says. “Believing that squatters
+are in the parking lot and thinking the place is vacant, believing that the
+Indians left, believing that there’s no kids there anymore, believing I’m a
+primitive person, believing that I have this rebel nature, believing I’m this
+vindictive angry person, when they have ignited the wick for us to panic. And
+out of all of this madness, not once have I spun out of control and showed them
+any hostility or disrespect. I am an artist. I let my work speak for itself.”
+
+  
+
+
+© 2013 Ramon Shiloh 
+  
+
+
+
+  
+
+
+For more information on the issues and affairs of Indian Heritage Program at Wilson\-Pacific, click on the links below
+
+  
+
+
+[Save The Indian Heritage Program\-\-UAIANEA](http://thenativecircle.org/2012/07/save-the-indian-heritage-program-uaianea/)
+
+  
+
+
+[Blaine Parce: concerned parent at the SPS Board of Directors Meeting](http://www.seattlechannel.org/videos/video.asp?ID=6184)
+
+  
+
+
+[Andrew Morrison's News and Art](http://andrewmorrison.org/)
+
+  
+
+
+  
+
+
+  
+
+
+  
+
+
+  
+
+
+  
+
+
+  
+
+
+  
+
+
+  
+
+
+  
+
+

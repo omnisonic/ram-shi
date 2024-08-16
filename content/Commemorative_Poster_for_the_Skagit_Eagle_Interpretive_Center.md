@@ -1,6 +1,6 @@
 Title: Commemorative Poster for the Skagit Eagle Interpretive Center
 Date: 2022-08-25T12:07:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkAuaoVHCKmfEt8qp-570AbmeXfgTv6s1C-h_5ChICRpLprCIPVSZlZXCTqsW42dqzmYeLkyIQHcO8KLV51szdqbH6X7rlOfeT2ZyzkBS_3AmrFsV0EicNWE9ApB01ZV0LFCr8Rbfx9OyHOvKTNcrtvLQZoxyjq97uDDkspsoZmOGytIsB03y0jJU/s320/eagle.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkAuaoVHCKmfEt8qp-570AbmeXfgTv6s1C-h_5ChICRpLprCIPVSZlZXCTqsW42dqzmYeLkyIQHcO8KLV51szdqbH6X7rlOfeT2ZyzkBS_3AmrFsV0EicNWE9ApB01ZV0LFCr8Rbfx9OyHOvKTNcrtvLQZoxyjq97uDDkspsoZmOGytIsB03y0jJU/s320/eagle.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/08/commemorative-poster-for-skagit-eagle.html
 Post ID: 797521641289535190

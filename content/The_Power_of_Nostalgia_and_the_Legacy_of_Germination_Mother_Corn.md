@@ -1,6 +1,6 @@
 Title: The Power of Nostalgia and the Legacy of Germination Mother Corn
 Date: 2024-08-01T01:42:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPXoOtPtIrt91CJEZ59XNqlMNBhL_0qhWOh5v67vWuDSMKQvYYWSjY_3u9cIjZnUR3StR6Borux-zwgGizqB0LP1HsRQAOs8xmzPE9wUYWnBfWa0S0Z_autAwJ4UMk8pqjsW68e0zc1y6yE_LREO8p4CVyeAmRBGkz1knp2nwvozQ2HLEWS3rIAO37sw/s320/453747441_10161352589804705_6119486524928151865_n.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPXoOtPtIrt91CJEZ59XNqlMNBhL_0qhWOh5v67vWuDSMKQvYYWSjY_3u9cIjZnUR3StR6Borux-zwgGizqB0LP1HsRQAOs8xmzPE9wUYWnBfWa0S0Z_autAwJ4UMk8pqjsW68e0zc1y6yE_LREO8p4CVyeAmRBGkz1knp2nwvozQ2HLEWS3rIAO37sw/s320/453747441_10161352589804705_6119486524928151865_n.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2024/08/the-power-of-nostalgia-and-legacy-of.html
 Post ID: 455619570870369077

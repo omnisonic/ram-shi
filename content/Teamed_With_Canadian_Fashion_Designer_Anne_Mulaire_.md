@@ -1,6 +1,6 @@
 Title: Teamed With Canadian Fashion Designer Anne Mulaire 
 Date: 2023-06-21T10:36:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjMO5D9WaZqiLbeyPSNc7GEZqATcfadN5FZM5FOVe0KZgA7pdkpEtcwwpFl5tBJXz_vzP-RdP7BAcFdPRLVfgjUENQW6X1G7Hi7XHXi2GJgU6XJK2WCrCVVlIPJ8_nDCGl0esNO9gSrmmHUrUqfzoluxU7PzdYyI8PJ4ErE7rRXMdZXQs-72ATaSo5KKw/s320/IMG_2033.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjMO5D9WaZqiLbeyPSNc7GEZqATcfadN5FZM5FOVe0KZgA7pdkpEtcwwpFl5tBJXz_vzP-RdP7BAcFdPRLVfgjUENQW6X1G7Hi7XHXi2GJgU6XJK2WCrCVVlIPJ8_nDCGl0esNO9gSrmmHUrUqfzoluxU7PzdYyI8PJ4ErE7rRXMdZXQs-72ATaSo5KKw/s320/IMG_2033.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2023/06/teamed-with-fashion-desiger-anne-mulaire.html
 Post ID: 3722672153796688518

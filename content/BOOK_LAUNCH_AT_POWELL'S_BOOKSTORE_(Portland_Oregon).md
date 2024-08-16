@@ -1,6 +1,6 @@
 Title: BOOK LAUNCH AT POWELL'S BOOKSTORE (Portland Oregon)
 Date: 2022-11-15T19:00:00-08:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiV1xPiPo_EPeeIbqoLvkV7W7F3cmUoIbDpFn0LQBEauqodcun2ibtOENpNHB93IX-Ap9_xGgWTSslbzAfrDGKglT7QQkm-tDyWYPKPl61CD2BJMpMlpRx31guwERIA4GHYrdz_TfiUxljOiCSD_NGLeV5RLWeLr7glv0GaYtzZqqkCoIEt_XmXqsU/s320/Book%20Launch%20POWELLS.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiV1xPiPo_EPeeIbqoLvkV7W7F3cmUoIbDpFn0LQBEauqodcun2ibtOENpNHB93IX-Ap9_xGgWTSslbzAfrDGKglT7QQkm-tDyWYPKPl61CD2BJMpMlpRx31guwERIA4GHYrdz_TfiUxljOiCSD_NGLeV5RLWeLr7glv0GaYtzZqqkCoIEt_XmXqsU/s320/Book%20Launch%20POWELLS.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/11/book-launch-at-powells-bookstore.html
 Post ID: 6684967379143869991

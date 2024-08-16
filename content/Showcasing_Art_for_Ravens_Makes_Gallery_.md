@@ -1,6 +1,6 @@
 Title: Showcasing Art for Ravens Makes Gallery 
 Date: 2023-02-28T14:38:00-08:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi165L_TWc2ISnAzw5bI6hnRl6RgA3aHB6ylCHgCRgFTNhByp7HQsK8HQUds8LgpZN_YffK2TAPh1xM0Np2pvpZrdUQ_1-ZHkuaNxtpErXNTNYAcKgstYIiy41rpwA6OsVNc7gjIqwW2bWCDJsCjY4GH0aqCtzIeKU4_blwRA-zcprgeZr89v3yALM/w356-h267/Maps.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi165L_TWc2ISnAzw5bI6hnRl6RgA3aHB6ylCHgCRgFTNhByp7HQsK8HQUds8LgpZN_YffK2TAPh1xM0Np2pvpZrdUQ_1-ZHkuaNxtpErXNTNYAcKgstYIiy41rpwA6OsVNc7gjIqwW2bWCDJsCjY4GH0aqCtzIeKU4_blwRA-zcprgeZr89v3yALM/w356-h267/Maps.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2023/02/showcasing-art-for-ravens-makes-gallery.html
 Post ID: 3244990536577113273

@@ -1,6 +1,6 @@
 Title: My Accident, Hospitalization, and Thank You
 Date: 2022-04-18T21:29:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjy0eFfPVNICps5O9hpVnSbFXNsGTu19CmFIpNxJhpjkQxylbU_SCNbWbA1KJ6fqETE-pTOlL1cRkom8pALgFk0UCYT9t6YlR1MrgpdZ5gownNvz9TdmTiLPR_WyaUG0uRsLHgXY4XGc0wjN4IhSpq3mxhuqQcNwE-56A4ZGDZKV-6QDrN7riX5aKU/s320/Blog%20Photo.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjy0eFfPVNICps5O9hpVnSbFXNsGTu19CmFIpNxJhpjkQxylbU_SCNbWbA1KJ6fqETE-pTOlL1cRkom8pALgFk0UCYT9t6YlR1MrgpdZ5gownNvz9TdmTiLPR_WyaUG0uRsLHgXY4XGc0wjN4IhSpq3mxhuqQcNwE-56A4ZGDZKV-6QDrN7riX5aKU/s320/Blog%20Photo.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/04/my-accident-hospitalization-and-thank.html
 Post ID: 438794625856079244

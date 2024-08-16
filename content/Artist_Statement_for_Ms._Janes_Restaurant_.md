@@ -1,6 +1,6 @@
 Title: Artist Statement for Ms. Janes Restaurant 
 Date: 2024-05-10T14:18:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhzXkSJqoUavupvD23XVZ4xue9YrSoOBjzDXge3KIyHoiEIritg5EEZ85-8olcgC0OFE0LhiRVXkLiswcbwvvTld9royeZtXwA8LbUGePRtgFyZ7vFMc7NMQ3-6asWT06wkGdwyaKCNh9dH5OaOGo3NugafPooDR6M_5Q3Mp2FIo_QpsLRQtkEVii5U2Q/s320/IMG_4083.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhzXkSJqoUavupvD23XVZ4xue9YrSoOBjzDXge3KIyHoiEIritg5EEZ85-8olcgC0OFE0LhiRVXkLiswcbwvvTld9royeZtXwA8LbUGePRtgFyZ7vFMc7NMQ3-6asWT06wkGdwyaKCNh9dH5OaOGo3NugafPooDR6M_5Q3Mp2FIo_QpsLRQtkEVii5U2Q/s320/IMG_4083.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2024/05/artist-statement-for-ms-janes-restaurant.html
 Post ID: 6304121579097983809

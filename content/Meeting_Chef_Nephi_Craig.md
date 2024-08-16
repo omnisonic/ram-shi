@@ -1,6 +1,6 @@
 Title: Meeting Chef Nephi Craig
 Date: 2024-04-08T22:44:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjeVZZ2FyKN0prHWNFTwg32KjrCzo05bCnHGia_OwYgQioz-oMcdm1AswOTdzLreq780nwM19XDBMxueHyRRrDKKBCkZSC6tKh-EExXSeqNC2e62H0dFnzO5A6ZvArtyIXopGLaxtwdQPLML2maeduDnq49IBklo7AJYxRK8f_Tgh-3KLdo_lClP3TGew/w297-h371/nephi.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjeVZZ2FyKN0prHWNFTwg32KjrCzo05bCnHGia_OwYgQioz-oMcdm1AswOTdzLreq780nwM19XDBMxueHyRRrDKKBCkZSC6tKh-EExXSeqNC2e62H0dFnzO5A6ZvArtyIXopGLaxtwdQPLML2maeduDnq49IBklo7AJYxRK8f_Tgh-3KLdo_lClP3TGew/w297-h371/nephi.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2024/04/meeting-chef-nephi-craig.html
 Post ID: 3730039194386130231

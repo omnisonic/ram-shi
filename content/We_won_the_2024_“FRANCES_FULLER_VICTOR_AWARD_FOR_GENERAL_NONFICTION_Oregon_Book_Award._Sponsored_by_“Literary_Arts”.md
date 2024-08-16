@@ -1,6 +1,6 @@
 Title: We won the 2024 “FRANCES FULLER VICTOR AWARD FOR GENERAL NONFICTION Oregon Book Award. Sponsored by “Literary Arts”
 Date: 2024-04-09T10:38:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhneBL85P3bLpGN7QBH_F-uMC3MMtK9rX8qOMCz6RdXcNZkOrdsVyWtXDBQi4rd0JNbExos2oLX9hFyTyAKmV3gQd1j6Ycw6btixiusLeQdubs0mmiA91zYQIU6maWrXWtAXuYmAMvp_Ly3_S5zub5AQHlmdeLZkV3fGVZbU92Woz4T6eaAVCZb1GXIeg/s320/Award.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhneBL85P3bLpGN7QBH_F-uMC3MMtK9rX8qOMCz6RdXcNZkOrdsVyWtXDBQi4rd0JNbExos2oLX9hFyTyAKmV3gQd1j6Ycw6btixiusLeQdubs0mmiA91zYQIU6maWrXWtAXuYmAMvp_Ly3_S5zub5AQHlmdeLZkV3fGVZbU92Woz4T6eaAVCZb1GXIeg/s320/Award.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2024/04/we-won-2024-frances-fuller-victor-award.html
 Post ID: 9147191386931600569

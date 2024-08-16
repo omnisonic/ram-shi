@@ -1,6 +1,6 @@
 Title: Ramon Shiloh Teams with "BJ's Bingo & Gaming" in Washington State to Honor Bertha Turnipseed (Puyallup Nation)
 Date: 2023-07-15T22:45:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7AR0_ZlknWShnxF8pUpEX7DNpp97Upaehw-PvxV7V0D_O8OqX1OFoKko_JeCXRht2BJu3LZ-KLSy7e4yy7OBVKatyXkWtNofXoFKfNFvj5CglQldHJa_xoabj_6olf7yeqLwUvpi4AmQE1d_Ih18IaERXqccWzbzYGR5czz2JX3Z2Ow262fKRELBadQ/s320/IMG_1967.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7AR0_ZlknWShnxF8pUpEX7DNpp97Upaehw-PvxV7V0D_O8OqX1OFoKko_JeCXRht2BJu3LZ-KLSy7e4yy7OBVKatyXkWtNofXoFKfNFvj5CglQldHJa_xoabj_6olf7yeqLwUvpi4AmQE1d_Ih18IaERXqccWzbzYGR5czz2JX3Z2Ow262fKRELBadQ/s320/IMG_1967.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2023/07/ramon-shiloh-teams-with-bjs-bingo.html
 Post ID: 3342287047485004360

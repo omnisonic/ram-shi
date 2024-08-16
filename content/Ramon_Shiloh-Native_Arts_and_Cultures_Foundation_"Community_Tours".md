@@ -1,6 +1,6 @@
 Title: Ramon Shiloh/Native Arts and Cultures Foundation "Community Tours"
 Date: 2023-09-13T23:53:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1NagPHTzt8pQJhP4b_UU0cpyXkQFDBEEhTfQj8rf_P7s9sANJ1SdImhA9kP9J1-ZSf4blqDZrnlpNAkS1SGOFaAdKGRKaAGYVcglqhY5IbudFHmjpJv-ykoQWgfd2r5v9or6o64a9VsuU_14oATnLZlgkCMPcUPfDDltYR03RfdCX14j9_SmaZDyC3A/s320/NACF-300-dpi-logo.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1NagPHTzt8pQJhP4b_UU0cpyXkQFDBEEhTfQj8rf_P7s9sANJ1SdImhA9kP9J1-ZSf4blqDZrnlpNAkS1SGOFaAdKGRKaAGYVcglqhY5IbudFHmjpJv-ykoQWgfd2r5v9or6o64a9VsuU_14oATnLZlgkCMPcUPfDDltYR03RfdCX14j9_SmaZDyC3A/s320/NACF-300-dpi-logo.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2023/09/ramon-shiloh-teams-with-native-arts-and.html
 Post ID: 5198860660854681516

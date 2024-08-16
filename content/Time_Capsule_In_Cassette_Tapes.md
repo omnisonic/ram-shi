@@ -1,6 +1,6 @@
 Title: Time Capsule In Cassette Tapes
 Date: 2022-07-20T23:35:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgg5pJThOEwDr6LvVgnRHMudSAQLYmLNe6PUG-kZHs1Zog0dnyaFngpxn4L_aqioDkU0PsQlhzM4blLimVOoZBDJ8oriivUvN54wr7kgvWFZZeqo1UgTbijRE8nK8f-Mv1XfeZLzixev7aMoiIkz_EWvmYjck9C_NjQ-uQI_r_ANBVZ6jgO3VNZEAc/s320/AE5E4883-042A-47E7-9E77-E97B9720C077.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgg5pJThOEwDr6LvVgnRHMudSAQLYmLNe6PUG-kZHs1Zog0dnyaFngpxn4L_aqioDkU0PsQlhzM4blLimVOoZBDJ8oriivUvN54wr7kgvWFZZeqo1UgTbijRE8nK8f-Mv1XfeZLzixev7aMoiIkz_EWvmYjck9C_NjQ-uQI_r_ANBVZ6jgO3VNZEAc/s320/AE5E4883-042A-47E7-9E77-E97B9720C077.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/07/time-capsule-in-these-cassette-tapes.html
 Post ID: 1960173292362206030

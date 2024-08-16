@@ -1,6 +1,6 @@
 Title: How I Met Award Winning Author, Gerald Hausman
 Date: 2013-11-08T07:04:00-08:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSWc4XCaxGaATJpp54nkl7EYvuTo5cihyOjG1OZ2uk_jdw9fnbvrRh-g81q0VDwVHfd8-q2PCYGtXpYut4X05-ezeOYccavpbzj5RRsdrR3cSzOstl3DotUIK85cW7QtwGNFvAaVhtsRYUdoFW6off8SbQQNuCm99e0kJ06Jy523Y3QNPfuRYbl-o/w369-h277/1614297_10152318629299705_1446682920_o.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSWc4XCaxGaATJpp54nkl7EYvuTo5cihyOjG1OZ2uk_jdw9fnbvrRh-g81q0VDwVHfd8-q2PCYGtXpYut4X05-ezeOYccavpbzj5RRsdrR3cSzOstl3DotUIK85cW7QtwGNFvAaVhtsRYUdoFW6off8SbQQNuCm99e0kJ06Jy523Y3QNPfuRYbl-o/w369-h277/1614297_10152318629299705_1446682920_o.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2013/11/how-i-met-gerald-hausman.html
 Post ID: 1710043253758012321

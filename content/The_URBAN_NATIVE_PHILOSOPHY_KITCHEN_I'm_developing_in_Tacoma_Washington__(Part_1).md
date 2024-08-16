@@ -1,6 +1,6 @@
 Title: The URBAN NATIVE PHILOSOPHY KITCHEN I'm developing in Tacoma Washington  (Part 1)
 Date: 2021-05-23T22:56:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4GqURNBqK2SbEc1wac4XUAF1guf51TXWaycocWTRYOfEK5K_QEeG_PHeSHizdChMlPkW_mggWh_oOlwJu25cBPO9-7YAN02OzDA6gYtFUjg2MNyqKGyWLE-zxeK8-At3H-piVhhpeZPKtmyutT0dk_zHgHwacfwVH6Njx3k1NLXwIeK7GdD_FLzo/w384-h298/248496177_10159444334429705_2380349791702743319_n.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4GqURNBqK2SbEc1wac4XUAF1guf51TXWaycocWTRYOfEK5K_QEeG_PHeSHizdChMlPkW_mggWh_oOlwJu25cBPO9-7YAN02OzDA6gYtFUjg2MNyqKGyWLE-zxeK8-At3H-piVhhpeZPKtmyutT0dk_zHgHwacfwVH6Njx3k1NLXwIeK7GdD_FLzo/w384-h298/248496177_10159444334429705_2380349791702743319_n.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2021/05/the-project-im-developing-in-tacoma.html
 Post ID: 615918517984774550

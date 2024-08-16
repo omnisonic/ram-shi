@@ -1,6 +1,6 @@
 Title: ABOUT RAMON SHILOH
 Date: 2022-08-11T15:52:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhi4Adks5dbdot7lNJGUE0TSgGOlcjhBuoN41_O-eWiG3yRAPn7c0ipDVjGiRLA-Sty9iALaxdAez_yvu4QCexghkM8OASJnkNdGDrL4BVH3DHHr9CVmIrSto_hFrVJWEZbnkk3-EBvM9aRS0LmeU40Hs5vFReRLuoNqQNQsSSbEKwFDxBsZiDsDcU/w385-h256/321BEB44-967F-49CC-948E-C2F9033A53F8.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhi4Adks5dbdot7lNJGUE0TSgGOlcjhBuoN41_O-eWiG3yRAPn7c0ipDVjGiRLA-Sty9iALaxdAez_yvu4QCexghkM8OASJnkNdGDrL4BVH3DHHr9CVmIrSto_hFrVJWEZbnkk3-EBvM9aRS0LmeU40Hs5vFReRLuoNqQNQsSSbEKwFDxBsZiDsDcU/w385-h256/321BEB44-967F-49CC-948E-C2F9033A53F8.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/08/about-ramon-shiloh.html
 Post ID: 2008626579241564567

@@ -1,6 +1,6 @@
 Title: Ive Been Invited To Illustrate Maps For Raven Makes Gallery
 Date: 2022-08-12T11:47:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiHvYz6kROTrK55PQ687ThJ-dwND9b5M3Jg5i_QJ-6mV3C5UfYuIfKu3RvmTeXtGcZ7jb1izkT32w-dvZocyadoxhT6S5vt5hWjsh2OkcpjxQjhC-nXIOFcvDrXjfwplXVOANLiNWFX-3hBZEyNqPuH8njdK-1w7MeggGLx3-3QXApFgImjfiSqyg8/s320/9DFDF527-5899-4919-ADB1-E958D79A14D0.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiHvYz6kROTrK55PQ687ThJ-dwND9b5M3Jg5i_QJ-6mV3C5UfYuIfKu3RvmTeXtGcZ7jb1izkT32w-dvZocyadoxhT6S5vt5hWjsh2OkcpjxQjhC-nXIOFcvDrXjfwplXVOANLiNWFX-3hBZEyNqPuH8njdK-1w7MeggGLx3-3QXApFgImjfiSqyg8/s320/9DFDF527-5899-4919-ADB1-E958D79A14D0.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/08/ive-been-invited-to-illustrate-on-1700.html
 Post ID: 4262884736056190100

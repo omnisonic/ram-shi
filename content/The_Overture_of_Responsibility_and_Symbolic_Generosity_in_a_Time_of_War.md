@@ -1,6 +1,6 @@
 Title: The Overture of Responsibility and Symbolic Generosity in a Time of War
 Date: 2011-12-16T09:24:00-08:00
-Summary: <img src="http://1.bp.blogspot.com/-LvkYd0y0Kls/TuuHJEubWNI/AAAAAAAAALo/RTsAjSiSuj4/s320/Japan%2BTour.jpg" width="700">
+Summary: ![image](http://1.bp.blogspot.com/-LvkYd0y0Kls/TuuHJEubWNI/AAAAAAAAALo/RTsAjSiSuj4/s320/Japan%2BTour.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2011/12/overture-of-responsibility-and-symbolic.html
 Post ID: 7155876461962308379

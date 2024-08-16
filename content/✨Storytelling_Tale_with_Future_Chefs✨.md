@@ -1,6 +1,6 @@
 Title: ✨Storytelling Tale with Future Chefs✨
 Date: 2024-05-09T14:22:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgP4bCXXW5u7x3PhVMYd680UNuFToMcTlHW7-cqJaXlgONaynPaCrOwxC9PSiLcrWDHseC6IrqhUFMz1OjbF58eBKH3E3YRkH30oRwxbkNg27Z2wNRAgJrdFnSEkEPJ_hXTnvW3b_nhOhjuabsswP_MIcIS0eXPzPtpF-HQSs0efw6Pf3nDmQCigWDFIA/s320/441039787_10161170579229705_4367887265343191925_n.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgP4bCXXW5u7x3PhVMYd680UNuFToMcTlHW7-cqJaXlgONaynPaCrOwxC9PSiLcrWDHseC6IrqhUFMz1OjbF58eBKH3E3YRkH30oRwxbkNg27Z2wNRAgJrdFnSEkEPJ_hXTnvW3b_nhOhjuabsswP_MIcIS0eXPzPtpF-HQSs0efw6Pf3nDmQCigWDFIA/s320/441039787_10161170579229705_4367887265343191925_n.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2024/05/storytelling-tale-with-future-chefs.html
 Post ID: 331496756801828277

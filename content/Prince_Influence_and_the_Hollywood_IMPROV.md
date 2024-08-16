@@ -1,6 +1,6 @@
 Title: Prince Influence and the Hollywood IMPROV
 Date: 2011-04-20T20:58:00-07:00
-Summary: <img src="https://4.bp.blogspot.com/-KveTl6Z_cFk/V-894DzSv1I/AAAAAAAAAck/myjwGSIti_c5eOEvQWDO5GZqmu70omkhgCLcB/s320/22235_250256189704_4297189_n.jpg" width="700">
+Summary: ![image](https://4.bp.blogspot.com/-KveTl6Z_cFk/V-894DzSv1I/AAAAAAAAAck/myjwGSIti_c5eOEvQWDO5GZqmu70omkhgCLcB/s320/22235_250256189704_4297189_n.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2011/04/lifelong-journey-to-define-my-art-and.html
 Post ID: 4894253117492707341

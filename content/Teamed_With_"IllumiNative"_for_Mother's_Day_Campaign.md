@@ -1,6 +1,6 @@
 Title: Teamed With "IllumiNative" for Mother's Day Campaign
 Date: 2022-05-08T22:21:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5hL0JaCqUHiOjzKfjHWDELcNFWV934hZ5a4uPVwamJgh62yiUf4uLRneGCsX_GMUa9p3wVnglECZQRZheUe432phcZ6zek7hqOwKnOD_YCxCtA86CzVSwa9IDI4AQXH_FuRy5t_3-bO0Wi1SFNw5gUeMGPcE5NsgjsyTmHSiwXFyPuz0WVdaNB34/w266-h400/280296306_10159786759654705_2227032026671764331_n.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5hL0JaCqUHiOjzKfjHWDELcNFWV934hZ5a4uPVwamJgh62yiUf4uLRneGCsX_GMUa9p3wVnglECZQRZheUe432phcZ6zek7hqOwKnOD_YCxCtA86CzVSwa9IDI4AQXH_FuRy5t_3-bO0Wi1SFNw5gUeMGPcE5NsgjsyTmHSiwXFyPuz0WVdaNB34/w266-h400/280296306_10159786759654705_2227032026671764331_n.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/05/happy-mothers-day-everyone-artist.html
 Post ID: 1130393812023227388

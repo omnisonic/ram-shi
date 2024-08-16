@@ -1,6 +1,6 @@
 Title: I MADE "NEW YORK TIMES"
 Date: 2022-04-19T22:12:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-KSzh-6e4cdjbwXH2cX8MI_mslWbmIjDh25_fcvQeuc65fUIvg9rjDe13s34K4fPMA9sqNNrLM_SVC65t7kUSHylTGilbBnZnUbJCZ5um00Grpuw-EifPUAlM5IILWf2thdEd0cPDdy2zKAzBjAsOhopI7w5NbtVdu7jnVadKrKr2QY5fayYSFf4/s320/NEW%20YORK%20TIMES.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-KSzh-6e4cdjbwXH2cX8MI_mslWbmIjDh25_fcvQeuc65fUIvg9rjDe13s34K4fPMA9sqNNrLM_SVC65t7kUSHylTGilbBnZnUbJCZ5um00Grpuw-EifPUAlM5IILWf2thdEd0cPDdy2zKAzBjAsOhopI7w5NbtVdu7jnVadKrKr2QY5fayYSFf4/s320/NEW%20YORK%20TIMES.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/04/i-made-new-york-times.html
 Post ID: 8308851481962420282

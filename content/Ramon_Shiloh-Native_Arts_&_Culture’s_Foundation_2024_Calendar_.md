@@ -1,6 +1,6 @@
 Title: Ramon Shiloh/Native Arts & Culture’s Foundation 2024 Calendar 
 Date: 2023-12-16T11:09:00-08:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWbOzAJS6wHbErdbddMNZNCh08kK15sW7sfY93tJjGIwc11HffouOdZeg2HVvqu2fDrUDxVz7CTTemk_d-f0LLe1j46LxrY3YEvBuDiNOfV6vF43lvip55NuTxBOfhGcReeCnlGorAWpw2VEiehLcAnjy9chYObdCuyUVOYLn72LvHyMVJpLJzampUcw/s320/BFBB4232-4530-464B-9BC9-F80FF3F2FF69.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWbOzAJS6wHbErdbddMNZNCh08kK15sW7sfY93tJjGIwc11HffouOdZeg2HVvqu2fDrUDxVz7CTTemk_d-f0LLe1j46LxrY3YEvBuDiNOfV6vF43lvip55NuTxBOfhGcReeCnlGorAWpw2VEiehLcAnjy9chYObdCuyUVOYLn72LvHyMVJpLJzampUcw/s320/BFBB4232-4530-464B-9BC9-F80FF3F2FF69.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2023/12/ramon-shiloh-is-on-native-arts-cultures.html
 Post ID: 8135285309154474399

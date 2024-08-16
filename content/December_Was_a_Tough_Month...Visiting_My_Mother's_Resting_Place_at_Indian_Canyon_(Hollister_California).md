@@ -1,6 +1,6 @@
 Title: December Was a Tough Month...Visiting My Mother's Resting Place at Indian Canyon (Hollister California)
 Date: 2022-12-20T16:13:00-08:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgPLd84yGDGJU0iiYw2KcPnrTrmwcldh9Ly-rC0FTXSDHfRQqKyWcDJNrdutSTcjHEWH4gJH7fvS5egnYsCBHyh4o5NWN3vkNnOQPZ6-CwLLi5EH9Cx4PaiMYr5YeVOE_MscpRJIPMJnUKIoQ12B_CVxZrX-yM7op2QgWxokqkadJOvzEqNA2EDOyY/s320/5AFD0B8D-9D17-4219-A66D-3BF4D4B39170.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgPLd84yGDGJU0iiYw2KcPnrTrmwcldh9Ly-rC0FTXSDHfRQqKyWcDJNrdutSTcjHEWH4gJH7fvS5egnYsCBHyh4o5NWN3vkNnOQPZ6-CwLLi5EH9Cx4PaiMYr5YeVOE_MscpRJIPMJnUKIoQ12B_CVxZrX-yM7op2QgWxokqkadJOvzEqNA2EDOyY/s320/5AFD0B8D-9D17-4219-A66D-3BF4D4B39170.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/12/december-was-tough-monthvisiting-my.html
 Post ID: 8937235879275568081

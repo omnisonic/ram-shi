@@ -1,6 +1,6 @@
 Title: Transparency of who I am at The Urban Native Philosophy Kitchen in Tacoma Washington (PART 2)
 Date: 2021-10-26T22:46:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEijbPamwiOC_DiUzdcN81ADCbWz3l4eD23VuXaWJVn2SUEa2vfW41oa_cgWAbBlIDgGLPqo1pMVuH-Vsg8gzMFrRj4JYlNoQrwcN38LM7Yh53o4sE3qhaa9Mgc8SeUAaMoTgMBoDm5-9mJJkcvz-NQ8Jp7ZbU7DkJMzRK_nvEK3XkZccVsB59jsNy0/s320/Me.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEijbPamwiOC_DiUzdcN81ADCbWz3l4eD23VuXaWJVn2SUEa2vfW41oa_cgWAbBlIDgGLPqo1pMVuH-Vsg8gzMFrRj4JYlNoQrwcN38LM7Yh53o4sE3qhaa9Mgc8SeUAaMoTgMBoDm5-9mJJkcvz-NQ8Jp7ZbU7DkJMzRK_nvEK3XkZccVsB59jsNy0/s320/Me.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2021/10/transparency-of-who-i-am-at-urban.html
 Post ID: 2831415258685350552

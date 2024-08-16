@@ -51,11 +51,10 @@ def create_markdown_file(post, output_dir):
     soup = BeautifulSoup(content, 'html.parser')
     first_image = soup.find('img')
 
-    # Prepare the summary in the specified format
+    # Prepare the summary in the specified Markdown format
     if first_image and 'src' in first_image.attrs:
-        # Here we're creating a static path. Adjust the path according to your actual static structure.
         image_src = first_image['src']
-        summary = f'<img src="{image_src}" width="700">'
+        summary = f'![image]({image_src} "Image summary")'  # Markdown syntax for image
     else:
         summary = ''  # No image found, keep summary empty
 
@@ -66,9 +65,9 @@ def create_markdown_file(post, output_dir):
         f'Summary: {summary}\n\n'
         f'Blogger_Post_URL: {post_url}\n'
         f'Post ID: {post_id}\n'
-
         f'{markdown_content}'
     )
+
 
     # Format: Use a safe title for the filename
     safe_title = title.replace(' ', '_').replace('/', '-') 

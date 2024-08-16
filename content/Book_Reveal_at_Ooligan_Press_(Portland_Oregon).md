@@ -1,6 +1,6 @@
 Title: Book Reveal at Ooligan Press (Portland Oregon)
 Date: 2022-09-13T18:27:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0KN9J2tAeLM4MowKrwtdnnkJ7Lsu96imfztQ3QJOxZfBaAZxDf8WzPxUrRAN6z952zr4WieWY0B7dFvrDXv4nhug4-i0D4YzgYYWcnFGJ2eoIj7sGTm-fqujXZdTlGIiAbyeGIyJoFefMSDgkngfkr5N35ZnjUouap_N8my-sY17Kspzulvw6Plo/s320/Ooligan%20Press%20Book%20reveal.png" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0KN9J2tAeLM4MowKrwtdnnkJ7Lsu96imfztQ3QJOxZfBaAZxDf8WzPxUrRAN6z952zr4WieWY0B7dFvrDXv4nhug4-i0D4YzgYYWcnFGJ2eoIj7sGTm-fqujXZdTlGIiAbyeGIyJoFefMSDgkngfkr5N35ZnjUouap_N8my-sY17Kspzulvw6Plo/s320/Ooligan%20Press%20Book%20reveal.png "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/09/book-reveal-at-ooligan-press-portland.html
 Post ID: 6403843567026418484

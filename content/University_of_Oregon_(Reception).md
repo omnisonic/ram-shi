@@ -1,6 +1,6 @@
 Title: University of Oregon (Reception)
 Date: 2022-08-29T10:17:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh_L-0L5Kwr4I2-5epqSx2w1zUQb71oKricPc-B4auOnIyVXic48SvUyUWIxLtkQkgHvsEO7rebyonGC5Lx6yfWTH-N-Mo_eftADGtLibw6MKvFAEVhZoOYQGOaLRLNI0on9Aa0ByH3RzF5Ijg-T1BVIuX0GgrgEgA28bp-YALrH2Wbr6uXoN8ADd4/s320/C549CA3D-D215-47B6-8636-09AAC409957E.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh_L-0L5Kwr4I2-5epqSx2w1zUQb71oKricPc-B4auOnIyVXic48SvUyUWIxLtkQkgHvsEO7rebyonGC5Lx6yfWTH-N-Mo_eftADGtLibw6MKvFAEVhZoOYQGOaLRLNI0on9Aa0ByH3RzF5Ijg-T1BVIuX0GgrgEgA28bp-YALrH2Wbr6uXoN8ADd4/s320/C549CA3D-D215-47B6-8636-09AAC409957E.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/08/university-of-oregon-reception.html
 Post ID: 3681033460065759491

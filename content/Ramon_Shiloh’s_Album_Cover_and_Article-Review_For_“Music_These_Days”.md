@@ -1,6 +1,6 @@
 Title: Ramon Shiloh’s Album Cover and Article/Review For “Music These Days”
 Date: 2024-05-21T02:39:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDYwSMS-9pUrm7pb9AjAHT82JaFqLBFpqOxyXBq5qPTsqF8HLDSOw0qG7_reqLhTwEZ_YURBA8916mScgMw0-Se03WYpQ7Iu2xEa2-eQdBeQZQI88fdtCh-CE_OTGPULsMYQRZPDIgujjt6gaAyaR7fufOocNqUOC3CwUTYfT1yzXAe3Bgt5eAaVo66w/w447-h447/IMG_5098.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDYwSMS-9pUrm7pb9AjAHT82JaFqLBFpqOxyXBq5qPTsqF8HLDSOw0qG7_reqLhTwEZ_YURBA8916mScgMw0-Se03WYpQ7Iu2xEa2-eQdBeQZQI88fdtCh-CE_OTGPULsMYQRZPDIgujjt6gaAyaR7fufOocNqUOC3CwUTYfT1yzXAe3Bgt5eAaVo66w/w447-h447/IMG_5098.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2024/05/ramon-shilohs-album-cover-and.html
 Post ID: 1348164244606726369

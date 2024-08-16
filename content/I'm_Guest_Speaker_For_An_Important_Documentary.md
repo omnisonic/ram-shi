@@ -1,6 +1,6 @@
 Title: I'm Guest Speaker For An Important Documentary
 Date: 2022-08-05T07:38:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjdki4oXthYGlhJtxIbCgTE3smaVaZ2Z4bhjFao-D0STnOOOj_fzmbE7NUeexlvDaA324KuHdvz7lAGOFpwDkPLBhSTSXdHNeUPXeq8EKMg3IMV1eLTwBkgUTMqjjY7npT_i387io7i8WKpusRjbhMin9oqHhn46Tjgb9g0d8qoaZEKrLVZwEIIuuA/s1600/DAD04DEF-2F23-4159-BEEE-23F1F2B398C9.webp" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjdki4oXthYGlhJtxIbCgTE3smaVaZ2Z4bhjFao-D0STnOOOj_fzmbE7NUeexlvDaA324KuHdvz7lAGOFpwDkPLBhSTSXdHNeUPXeq8EKMg3IMV1eLTwBkgUTMqjjY7npT_i387io7i8WKpusRjbhMin9oqHhn46Tjgb9g0d8qoaZEKrLVZwEIIuuA/s1600/DAD04DEF-2F23-4159-BEEE-23F1F2B398C9.webp "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/08/im-guest-speaker-for-important.html
 Post ID: 8817298900901619037

@@ -1,6 +1,6 @@
 Title: SANTA FE CHILDREN'S MUSEUM COOKBOOK
 Date: 2021-09-05T22:40:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiAFqiT3DiJkKuuObzTGlfnhVHomOvwsXnRuoi-LTtgD3aG5lrr9q2ZMzPapgloeJEz28NKqq26HSHGVsrBxs9ZtJu0Ph3CjnCai7pGQdNmcMeiSXNNqaUgGqEJLRMfOvQdyU_TxBHfKMaeCydHtA2f6djSvlCUFtXPjv6CJKqhltiZkQZ4Y3LOlfg/w320-h204/240604436_10159366203559705_5195404989938007980_n.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiAFqiT3DiJkKuuObzTGlfnhVHomOvwsXnRuoi-LTtgD3aG5lrr9q2ZMzPapgloeJEz28NKqq26HSHGVsrBxs9ZtJu0Ph3CjnCai7pGQdNmcMeiSXNNqaUgGqEJLRMfOvQdyU_TxBHfKMaeCydHtA2f6djSvlCUFtXPjv6CJKqhltiZkQZ4Y3LOlfg/w320-h204/240604436_10159366203559705_5195404989938007980_n.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2021/09/santa-fe-childrens-museum-cookbook.html
 Post ID: 8117348036847042400

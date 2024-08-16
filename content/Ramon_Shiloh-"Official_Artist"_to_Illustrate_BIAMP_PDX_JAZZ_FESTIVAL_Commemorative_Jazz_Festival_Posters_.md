@@ -1,6 +1,6 @@
 Title: Ramon Shiloh/"Official Artist" to Illustrate BIAMP PDX JAZZ FESTIVAL Commemorative Jazz Festival Posters 
 Date: 2023-08-12T23:26:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtnPgvlKOuhb6nXZrH-Y5tsC3B4ufkIwR77doYSu9rRjVq89-WkQERMkX7QLdU0-ByLJ1-rjctdq1-ucZipAc9sIrHKcLUTb416Fv7NxjKcsot0d_TwbOwMd_nBnt69HqlZse524-OYP9nA6Qmkph7bsaghAqDt4WTxx2_uLBBuHYAIpqH0Xjgk2HY1g/s320/IMG_2583.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtnPgvlKOuhb6nXZrH-Y5tsC3B4ufkIwR77doYSu9rRjVq89-WkQERMkX7QLdU0-ByLJ1-rjctdq1-ucZipAc9sIrHKcLUTb416Fv7NxjKcsot0d_TwbOwMd_nBnt69HqlZse524-OYP9nA6Qmkph7bsaghAqDt4WTxx2_uLBBuHYAIpqH0Xjgk2HY1g/s320/IMG_2583.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2023/08/ramon-shiloh-teams-with-pdx-jazz.html
 Post ID: 4491632498195400845

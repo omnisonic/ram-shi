@@ -1,6 +1,6 @@
 Title: An Afternoon with Esperanza Spalding & PRISMID at Native Arts & Cultures Foundation
 Date: 2024-04-10T10:55:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMOtEpyikBQx00gHaZvaiI5Qepupyv4Cpp-Smz-bbY9LoNvtaTnj5Pm6JR0d4KWEx7MpTcgNA1DD2Wg5j5lp8gEouWANz155olBxV9YEG0Rah_WuM9cMXQLABBnWp5YBBsgv0gvn51IArx2JkC55WHmntrM2WUAdjX9Ss9HxpGZD5yRQICyjhxvvwgSw/s320/Alter.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMOtEpyikBQx00gHaZvaiI5Qepupyv4Cpp-Smz-bbY9LoNvtaTnj5Pm6JR0d4KWEx7MpTcgNA1DD2Wg5j5lp8gEouWANz155olBxV9YEG0Rah_WuM9cMXQLABBnWp5YBBsgv0gvn51IArx2JkC55WHmntrM2WUAdjX9Ss9HxpGZD5yRQICyjhxvvwgSw/s320/Alter.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2024/04/an-afternoon-with-esperanza-spalding.html
 Post ID: 946556617156987756

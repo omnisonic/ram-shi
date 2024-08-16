@@ -1,6 +1,6 @@
 Title: SKAGIT RIVER SALMON FESTIVAL
 Date: 2021-06-16T21:47:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjKlyNMFd2N5WU9Tki24t1_-7yknl5k-eCnRAkV-sd-sgZbQXKGx4RqLog6_hpDCHqJRWzp_BqsP2uWFZH9F-yM-_fhu3JnJ6eTmnI5BLoA1EiL9yFrzid9WXstEDwU9V-gCyRvoyt2bJUXinQOFVVaCrEDdegczTOy_w_Z8FVTiKbRwVXdh907Ezs/s320/Skagit%203.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjKlyNMFd2N5WU9Tki24t1_-7yknl5k-eCnRAkV-sd-sgZbQXKGx4RqLog6_hpDCHqJRWzp_BqsP2uWFZH9F-yM-_fhu3JnJ6eTmnI5BLoA1EiL9yFrzid9WXstEDwU9V-gCyRvoyt2bJUXinQOFVVaCrEDdegczTOy_w_Z8FVTiKbRwVXdh907Ezs/s320/Skagit%203.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2021/06/blog-post.html
 Post ID: 5459743212840850427

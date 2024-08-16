@@ -1,6 +1,6 @@
 Title: Ramon Shiloh Teams with Award Winning Author Kara Briggs in Latest Book
 Date: 2024-07-02T22:19:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBs-oCPOOrTje9SStbnAp9ogxeyW06t7DzOscqLshcG4uuzdpYPJ-xabg4UODnxs4y3QkTiQASn7uyv_AtcJ1eGTv0guXguFsFMxSdc0lxllFKrOthRG7RfVjo9GUyUc91h9myWMVrazm_Y51YeHpXHh4O8PCLO8cYPwAsaQ424GdIXZpXAmzOz_kY6Q/w375-h486/IMG_5984.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBs-oCPOOrTje9SStbnAp9ogxeyW06t7DzOscqLshcG4uuzdpYPJ-xabg4UODnxs4y3QkTiQASn7uyv_AtcJ1eGTv0guXguFsFMxSdc0lxllFKrOthRG7RfVjo9GUyUc91h9myWMVrazm_Y51YeHpXHh4O8PCLO8cYPwAsaQ424GdIXZpXAmzOz_kY6Q/w375-h486/IMG_5984.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2024/07/ramon-shiloh-teams-with-award-winning.html
 Post ID: 1686194332715289531

@@ -1,6 +1,6 @@
 Title: Ramon Shiloh Unveils Powerful Mural to honor 93 Year old Puyallup Matriarch and Her Family  
 Date: 2024-02-17T22:05:00-08:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEha6b1exQZ36oZYNmrnm_Wn2HGJOKVLiymiUMIqgpxUp6niboGhSu-jcOgqB5La5IhuCw-7mOzbxKsFVFPG5Y_dJ-tqBfM1mqGCAhFjZN2LV5ZWws2isy6DngzlJ2GBfqlq_yVbvqJnLoeqYzMrqwyR3oXEwQYljYaR-q9Ef1ljgfNwJbF6ZFtF6aDypw/s320/IMG_4110.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEha6b1exQZ36oZYNmrnm_Wn2HGJOKVLiymiUMIqgpxUp6niboGhSu-jcOgqB5La5IhuCw-7mOzbxKsFVFPG5Y_dJ-tqBfM1mqGCAhFjZN2LV5ZWws2isy6DngzlJ2GBfqlq_yVbvqJnLoeqYzMrqwyR3oXEwQYljYaR-q9Ef1ljgfNwJbF6ZFtF6aDypw/s320/IMG_4110.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2024/02/ramon-shiloh-unveils-powerful-mural-to.html
 Post ID: 2409908633118748397

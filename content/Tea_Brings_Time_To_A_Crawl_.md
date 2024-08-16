@@ -1,6 +1,6 @@
 Title: Tea Brings Time To A Crawl 
 Date: 2022-05-30T06:48:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZNfu5m_u3rWhn1xNyU_eCWIwK80geZGywWM-RTSESYk3WkatsWaSeF3gGjtTicJJ-C8cD0TDRdnqAeBpSYuwcUXY0-Z4Z-3FJqYksyzFR99xp3fa09g4YM4pMKOXXiLgoIe_ALG-F3S0Qo6PFA45B2Sm8DeKojuMPjjExp5y7KXc5fkdCCvaVjDQ/s320/3DBCA34D-2882-444D-88AB-ABF3C40748E9.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZNfu5m_u3rWhn1xNyU_eCWIwK80geZGywWM-RTSESYk3WkatsWaSeF3gGjtTicJJ-C8cD0TDRdnqAeBpSYuwcUXY0-Z4Z-3FJqYksyzFR99xp3fa09g4YM4pMKOXXiLgoIe_ALG-F3S0Qo6PFA45B2Sm8DeKojuMPjjExp5y7KXc5fkdCCvaVjDQ/s320/3DBCA34D-2882-444D-88AB-ABF3C40748E9.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/05/tea-brings-time-to-crawl.html
 Post ID: 1216003009249728323

@@ -1,6 +1,6 @@
 Title: New Project with NESIKA WILAMUT 
 Date: 2022-07-03T21:22:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzdkRl53ag8Hd7WbBX2XE8r2Flqnv3B0jMCYTmCo-017zPK2yvczXtRY3wFy1o-doz4Gvj2foz5xpsqdIabBJIW_7T_8pngP-h2ihy9X5-6A7gtrg39ce2mvJ_fRKRq0vZUrFDoLtZzRzzEPO5UDGG6QMVQId1vL5Lrk2SJ8GuU8xHPgIeWraoVZE/w358-h358/538253A3-90C0-4A13-88D3-9A3E76FD7999.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzdkRl53ag8Hd7WbBX2XE8r2Flqnv3B0jMCYTmCo-017zPK2yvczXtRY3wFy1o-doz4Gvj2foz5xpsqdIabBJIW_7T_8pngP-h2ihy9X5-6A7gtrg39ce2mvJ_fRKRq0vZUrFDoLtZzRzzEPO5UDGG6QMVQId1vL5Lrk2SJ8GuU8xHPgIeWraoVZE/w358-h358/538253A3-90C0-4A13-88D3-9A3E76FD7999.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/07/new-project-with-nesika-wilamut.html
 Post ID: 1865707007873635429

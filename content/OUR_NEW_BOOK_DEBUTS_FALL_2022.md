@@ -1,6 +1,6 @@
 Title: OUR NEW BOOK DEBUTS FALL 2022
 Date: 2022-05-24T22:36:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLmxeUHqc9UHvmAzOG-tZs9hu_B_R0B47ikDjAWp2xUPQarMlim1m06Y5IEdfUXswXWwSBwONCLs73A2HPyBdRszFHl9RaKntRpllslCjuEo6EJD5zNapq3KYYX6SgZ_XqPrRsOw_qzVPC0qqqM3CFt2xCpdBaQZ_yXz-ynWb4SD3IG5uPzpVZYWE/w414-h640/Where%20We%20Call%20Home.jpg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLmxeUHqc9UHvmAzOG-tZs9hu_B_R0B47ikDjAWp2xUPQarMlim1m06Y5IEdfUXswXWwSBwONCLs73A2HPyBdRszFHl9RaKntRpllslCjuEo6EJD5zNapq3KYYX6SgZ_XqPrRsOw_qzVPC0qqqM3CFt2xCpdBaQZ_yXz-ynWb4SD3IG5uPzpVZYWE/w414-h640/Where%20We%20Call%20Home.jpg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/05/our-new-book-debuts-fall-2022.html
 Post ID: 2333120191546328343

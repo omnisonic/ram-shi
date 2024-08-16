@@ -1,6 +1,6 @@
 Title: Tiffany Wallace and Jane Goodall 
 Date: 2022-09-02T21:48:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgaW-Do0dWZZx266DczUv-K4qygoDu-OUyNZuQY7xDpzX-aQALt2WZgaWzNSsgN_7xZihu68IRXaKOvfpwsxCdYmY4lfkDgffvyLDhon4tOLuSWRQHj0-CRTw8P8N9kOtSzyO8MfWLnRZCTwpjcrzfuiOIx2449d3mIXITqqWIgtMHTBx7UayyNyKQ/w400-h391/019AB9F5-CCE2-4FC6-B6F7-602F64FD8B8E.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgaW-Do0dWZZx266DczUv-K4qygoDu-OUyNZuQY7xDpzX-aQALt2WZgaWzNSsgN_7xZihu68IRXaKOvfpwsxCdYmY4lfkDgffvyLDhon4tOLuSWRQHj0-CRTw8P8N9kOtSzyO8MfWLnRZCTwpjcrzfuiOIx2449d3mIXITqqWIgtMHTBx7UayyNyKQ/w400-h391/019AB9F5-CCE2-4FC6-B6F7-602F64FD8B8E.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/09/tiffany-wallace-and-jane-goodall.html
 Post ID: 3551083959972744902

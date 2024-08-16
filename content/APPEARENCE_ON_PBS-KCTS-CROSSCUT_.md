@@ -1,6 +1,6 @@
 Title: APPEARENCE ON PBS/KCTS/CROSSCUT 
 Date: 2021-08-21T23:03:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKH2kByE9WVEP9r6l5-ud_R7LfDDoYoXIiSHq20MbcXNg3X4cFN5FmjY9-XvRyN-bm-K-iPaSmEEtBiZ3OeQUX6AyJYM4z8gcS-rnuh1qIkUnclBcQtYZirOtIAga3gr_dit4MeDOPE8MWJtZ7nMQmEgZa1anvB4NhNZi9JnYXvbTVgrUZlB5MCqk/s320/C0E3E481-6AD7-4D71-9CE0-ECFA708E0C5F.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKH2kByE9WVEP9r6l5-ud_R7LfDDoYoXIiSHq20MbcXNg3X4cFN5FmjY9-XvRyN-bm-K-iPaSmEEtBiZ3OeQUX6AyJYM4z8gcS-rnuh1qIkUnclBcQtYZirOtIAga3gr_dit4MeDOPE8MWJtZ7nMQmEgZa1anvB4NhNZi9JnYXvbTVgrUZlB5MCqk/s320/C0E3E481-6AD7-4D71-9CE0-ECFA708E0C5F.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2021/08/appearence-on-pbskctscrosscut.html
 Post ID: 3641733762468683787

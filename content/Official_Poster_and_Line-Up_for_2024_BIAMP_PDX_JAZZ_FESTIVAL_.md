@@ -1,6 +1,6 @@
 Title: Official Poster and Line-Up for 2024 BIAMP PDX JAZZ FESTIVAL 
 Date: 2023-11-27T22:13:00-08:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-3EjrYOQSVPA0XZqKrIprcip5Dzb0mlyGnGSHiz5UGMBQ7cMZfhcWj4jBLGEdrK20rLIe5ceymGkIRj-JqI4oaO6jE579VmqrpQowujA3LVhvlxWMRPBXbxeFvNTq_PDEFy2wINjvEMF41OLcBmbZPCgm2NBK_kk4Z1NisGn_RHza97aikQCgVPryig/w309-h400/IMG_2764.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-3EjrYOQSVPA0XZqKrIprcip5Dzb0mlyGnGSHiz5UGMBQ7cMZfhcWj4jBLGEdrK20rLIe5ceymGkIRj-JqI4oaO6jE579VmqrpQowujA3LVhvlxWMRPBXbxeFvNTq_PDEFy2wINjvEMF41OLcBmbZPCgm2NBK_kk4Z1NisGn_RHza97aikQCgVPryig/w309-h400/IMG_2764.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2023/11/official-poster-and-line-up-for-2024.html
 Post ID: 8904740770382281508

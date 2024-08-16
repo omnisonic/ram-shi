@@ -1,6 +1,6 @@
 Title: “Unceded Kinship: Land, Place and People”. An Exhibition At The University Of Oregon June 1st-Sept. 9th
 Date: 2022-05-30T17:01:00-07:00
-Summary: <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2wscIdpkkMAdPpkDunYHGiArg08YnIcs9l1mAabUA_41p_ZPoR5vN7oDjQEJVMQhNC_7XCojZ8S-vbNcHBVaHkD36THkzjCEUd26LrDwVL9108T7EeC2Zmn9gD1TLzAXVVdjjGlu82gJ3dNY_6XOccHIOv2E9Z6wh4ARSs72K_PsEcbWEjKaIr28/s320/B539ABCF-7C28-4B78-9A0F-FD46649A1D84.jpeg" width="700">
+Summary: ![image](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2wscIdpkkMAdPpkDunYHGiArg08YnIcs9l1mAabUA_41p_ZPoR5vN7oDjQEJVMQhNC_7XCojZ8S-vbNcHBVaHkD36THkzjCEUd26LrDwVL9108T7EeC2Zmn9gD1TLzAXVVdjjGlu82gJ3dNY_6XOccHIOv2E9Z6wh4ARSs72K_PsEcbWEjKaIr28/s320/B539ABCF-7C28-4B78-9A0F-FD46649A1D84.jpeg "Image summary")
 
 Blogger_Post_URL: http://ramonshilohslameass.blogspot.com/2022/05/unceded-kinship-land-place-and-people.html
 Post ID: 5621224525503558515
